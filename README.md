@@ -1,2 +1,1 @@
-kita lagi pelatihan
-yyyyyyyyyy HAIIIIII INI BARU
+HAIIIIII INI ARKA
