@@ -1,0 +1,1 @@
+kita lagi pelatihan
