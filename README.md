@@ -1,2 +1,2 @@
 kita lagi pelatihan
-yyyyyyyyyy
+yyyyyyyyyy HAIIIIII INI BARU
